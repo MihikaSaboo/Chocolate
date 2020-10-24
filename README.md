@@ -8,10 +8,4 @@
 ### Step6: Take small glasses, add crushed biscuit crumbs of the took biscuit with little butter at the bottom as first layer, now with a spoon add some chocolate mix and make it the 2nd layer. Like this make layers till needed.
 ### Step7: Decorate with chocolate shavings. Keep it in refrigerator for couple of hours before serving.
 
-
-# ChocolateShots
-# ChocolateShots
-# ChocolateShots
-# ChocolateShots
-# ChocolateShots
 # ChocolateShots
